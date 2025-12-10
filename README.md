@@ -14,6 +14,7 @@
 ### About Me
 - 관심사: yolo, 백엔드
 - 연락: {csuhyeok0514@gmail.com}
+- insta: @csh05_14
 
 ---
 
